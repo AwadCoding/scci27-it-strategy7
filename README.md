@@ -1,0 +1,1 @@
+# scci27-it-strategy7
